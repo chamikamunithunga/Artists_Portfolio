@@ -8,6 +8,7 @@
 
 
 
+
 [D'COMP] Portfolio
 Welcome to the official portfolio of [Didula Tharusara], a versatile and passionate music artist. This portfolio showcases the artist's work, including albums, singles, music videos, performances, and upcoming projects.
 
